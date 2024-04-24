@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **kaiden.thrailkill@gmail.com**
 
-- 📄 Know about my experiences [https://pdfhost.io/v/ncarlpPXj_Resume2022](https://pdfhost.io/v/ncarlpPXj_Resume2022)
-
 - ⚡ Fun fact **I am a college cheerleader!**
 
 <h3 align="left">Connect with me:</h3>
